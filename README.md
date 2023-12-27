@@ -1,2 +1,1 @@
-# Mega-Hack-v5
-'Shit tonna hacks.
+ Copy of Mega-Hack-V5!
